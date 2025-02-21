@@ -7,7 +7,7 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |----------------|---------------|-----------------|
 |  2/20 Thursday |  Auditions    |                 |
 |  2/21 Friday   |               |                 |
-|  2/22 Saturday | Maybe: 3-4pm at [TD-W 1703] |                 |
+|  2/22 Saturday |~~3-4pm at [TD-W 1703]~~<br> changed to 7-8pm at [TD-W 1703] |                 |
 |  2/23 Sunday   |               |                 |
 |  2/24 Monday   |               |                 |
 |  2/25 Tuesday  | 6-7pm at [TD-W 1703] |                 |
