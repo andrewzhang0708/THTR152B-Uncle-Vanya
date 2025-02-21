@@ -7,26 +7,26 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |----------------|---------------|-----------------|
 |  2/20 Thursday |  Auditions    |                 |
 |  2/21 Friday   |               |                 |
-|  2/22 Saturday |               |                 |
+|  2/22 Saturday | Maybe: 3-4pm at [TD-W 1703] |                 |
 |  2/23 Sunday   |               |                 |
 |  2/24 Monday   |               |                 |
-|  2/25 Tuesday  |               |                 |
+|  2/25 Tuesday  | 6-7pm at [TD-W 1703] |                 |
 |  2/26 Wednesday|               |                 |
-|  2/27 Thursday |               |                 |
+|  2/27 Thursday | Open Rehearsal* at [Studio Theater] <br> 6-8pm at [TD-W 1507] |                 |
 |  2/28 Friday   |               |                 |
 |  3/1 Saturday  |               |                 |
 |  3/2 Sunday    |               |                 |
 |  3/3 Monday    |               |                 |
-|  3/4 Tuesday   |               |                 |
+|  3/4 Tuesday   | Open Rehearsal* at [Studio Theater] 3/4 or 3/6 <br> 7-8pm at [Studio Theater]|                 |
 |  3/5 Wednesday |               |                 |
-|  3/6 Thursday  |               |                 |
-|  3/7 Friday    |               |                 |
+|  3/6 Thursday  | Open Rehearsal* at [Studio Theater] <br> 6-8pm at [TD-W 1507]|                 |
+|  3/7 Friday    |-----TBD onwards-----|                 |
 |  3/8 Saturday  |               |                 |
 |  3/9 Sunday    |               |                 |
 |  3/10 Monday   |               |                 |
-|  3/11 Tuesday  |               |                 |
+|  3/11 Tuesday  | Open Rehearsal* at [Studio Theater] |                 |
 |  3/12 Wednesday|               |                 |
-|  3/13 Thursday |               |                 |
+|  3/13 Thursday | Final presentation* at [Studio Theater][Studio Theater] |                 |
 
 
 *Open Rehearsals & final presentation: We will be presenting our scene to class. Only need to stay during our scene.
