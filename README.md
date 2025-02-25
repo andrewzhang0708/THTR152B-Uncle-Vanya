@@ -16,14 +16,14 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |  2/28 Friday   |               |                 |
 |  3/1 Saturday  | 6-7pm at [Studio Theater] Maria Only |                 |
 |  3/2 Sunday    | Maybe: 5-6pm at [TD-W 1703] Maria Only |                 |
-|  3/3 Monday    | Dance Nation & Amplify Reading Auditions |                 |
+|  3/3 Monday    | Dance Nation & Amplify Reading Auditions <br> Maybe: 9-10pm at [HSSB 1143]|                 |
 |  3/4 Tuesday   | Open Rehearsal* at [Studio Theater] 3/4 or 3/6 <br> 7-8pm at [Studio Theater]|                 |
 |  3/5 Wednesday | Dance Nation & Amplify Reading Callbacks |                 |
 |  3/6 Thursday  | Open Rehearsal* at [Studio Theater] <br> 6-8pm at [TD-W 1507]|                 |
-|  3/7 Friday    |-----TBD onwards-----|                 |
+|  3/7 Friday    |               |                 |
 |  3/8 Saturday  |               |                 |
 |  3/9 Sunday    |               |                 |
-|  3/10 Monday   |               |                 |
+|  3/10 Monday   | Maybe: 5-6pm at [TD-W 1507] |                 |
 |  3/11 Tuesday  | Open Rehearsal* at [Studio Theater] |                 |
 |  3/12 Wednesday|               |                 |
 |  3/13 Thursday | Final presentation* at [Studio Theater][Studio Theater] |                 |
