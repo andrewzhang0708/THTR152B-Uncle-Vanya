@@ -24,7 +24,7 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |  3/8 Saturday  |               |                 |
 |  3/9 Sunday    |               |                 |
 |  3/10 Monday   | Maybe: 5-6pm at [TD-W 1507] |                 |
-|  3/11 Tuesday  | Open Rehearsal* at [Studio Theater] |                 |
+|  3/11 Tuesday  | Open Rehearsal* at [Studio Theater] <br> 5-6pm at [Studio Theater]|                 |
 |  3/12 Wednesday|               |                 |
 |  3/13 Thursday | Final presentation* at [Studio Theater][Studio Theater] |                 |
 
