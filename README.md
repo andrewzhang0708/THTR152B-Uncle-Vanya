@@ -17,15 +17,15 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |  3/1 Saturday  |               |                 |
 |  3/2 Sunday    | 8-9pm at [Studio Theater] | Meet Mama Svetlana, Ms. Boo Boo, Rachel, Tati, Olga, Teresa, Pippi! |
 |  3/3 Monday    | Dance Nation & Amplify Reading Auditions |                 |
-|  3/4 Tuesday   | Open Rehearsal* at [Studio Theater] <br> 7-8pm at [Studio Theater]|                 |
+|  3/4 Tuesday   |               |                 |
 |  3/5 Wednesday | Dance Nation & Amplify Reading Callbacks |                 |
-|  3/6 Thursday  | Perhaps: 6-8pm at [TD-W 1507][TD-W 1507]|                 |
+|  3/6 Thursday  | Open Rehearsal* at [Studio Theater] <br> 6-8pm at [TD-W 1507][TD-W 1507]|                 |
 |  3/7 Friday    |               |                 |
-|  3/8 Saturday  |               |                 |
-|  3/9 Sunday    |               |                 |
-|  3/10 Monday   | Maybe: 5-6pm at [TD-W 1507][TD-W 1507] |                 |
-|  3/11 Tuesday  | Open Rehearsal* at [Studio Theater][Studio Theater] <br> 5-6pm at [Studio Theater][Studio Theater]|                 |
-|  3/12 Wednesday| Backup--if we need: 5-6pm at [HSSB 1143][HSSB1143] |                 |
+|  3/8 Saturday  | 5-6pm at [TD-W 1507] |                 |
+|  3/9 Sunday    | 5-6pm at [TD-W 1703] |                 |
+|  3/10 Monday   | 5-6pm at [TD-W 1507][TD-W 1507] |                 |
+|  3/11 Tuesday  | Open Rehearsal* at [Studio Theater][Studio Theater] <br> **5-6pm at [Studio Theater][Studio Theater]**|                 |
+|  3/12 Wednesday| if we really have to: 5-6pm at [HSSB 1143][HSSB 1143] |                 |
 |  3/13 Thursday | Final presentation* at [Studio Theater][Studio Theater] |                 |
 
 
