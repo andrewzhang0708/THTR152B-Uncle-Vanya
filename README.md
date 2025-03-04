@@ -19,7 +19,7 @@ Uncle Vanya by Anton Chekhov adapted by Libby Appel
 |  3/3 Monday    | Dance Nation & Amplify Reading Auditions |                 |
 |  3/4 Tuesday   |               |                 |
 |  3/5 Wednesday | Dance Nation & Amplify Reading Callbacks |                 |
-|  3/6 Thursday  | Open Rehearsal* at [Studio Theater] <br> 6-8pm at [TD-W 1507][TD-W 1507]|                 |
+|  3/6 Thursday  | Open Rehearsal* at [Studio Theater] <br> 6-7pm at [TD-W 1507][TD-W 1507]|                 |
 |  3/7 Friday    |               |                 |
 |  3/8 Saturday  | 5-6pm at [TD-W 1507] |                 |
 |  3/9 Sunday    | 5-6pm at [TD-W 1703] |                 |
